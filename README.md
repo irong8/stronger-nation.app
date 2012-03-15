@@ -1,0 +1,1 @@
+# [Go to the issue tracker →](/irong8/Stronger-Nation.app/issues)
